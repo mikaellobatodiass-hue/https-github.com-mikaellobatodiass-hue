@@ -43,5 +43,5 @@ Atualmente estou construindo projetos práticos para evoluir minhas habilidades 
 
 ## 📫 Contato
 
-- LinkedIn: (coloca aqui)
-- Email: (opcional)
+wtts(89981089633)
+- Email: (mikaellobatodiasss@gmail.com)
